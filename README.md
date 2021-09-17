@@ -12,6 +12,8 @@ Emma Gabriela Alfaro De La Rocha
 
 Emmanuel Humberto Solórzano Cabrera
 
+Documentacion para correr el programa
+https://drive.google.com/drive/folders/1gPjZMpqgLsKeYxYcFSniWGDFIFYuW-eM?usp=sharing 
 
 Bibliografía:
 
